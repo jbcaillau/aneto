@@ -7,7 +7,7 @@
 ## Dates
 
 - du 17 au 20/07/2025
-- rdv jeudi 17/07 12:00 pour déj. puis départ refuge
+- rdv jeudi 17/07 12:00 pour déj. puis départ refuge : point GPS (TBC)
 - nuitée en refuge jeudi 17/07
 - ascension puis retour vendredi 18/07
 

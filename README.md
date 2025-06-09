@@ -10,6 +10,7 @@
 - rdv jeudi 17/07 12:00 pour déj. puis départ refuge : point GPS (TBC)
 - nuitée en refuge jeudi 17/07
 - ascension puis retour vendredi 18/07
+- samedi-dimanche : blanc limé avec la caravane (+ activités ludiques : pétanque, bicyclette, *etc.*)
 
 ## Participants
 

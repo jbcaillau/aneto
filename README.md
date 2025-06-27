@@ -7,9 +7,9 @@
 ## Dates
 
 - du 17 au 20/07/2025
-- rdv jeudi 17/07 12:00 pour déj. puis départ refuge : point GPS (TBC)
-- nuitée en refuge jeudi 17/07
-- ascension puis retour vendredi 18/07
+- rdv jeudi 17/07 12:00 à l'[hôtel Viella](https://maps.app.goo.gl/1ADRPFU7UoBaVwZi8?g_st=ipc) pour déj. (+ dépose vélos) puis départ vers parking rando (compter 1H de route - TBC)
+- nuitée au [refuge de la Rencluse](https://www.pyrenees-refuges.com/fr/affiche.php?numenr=283) jeudi 17/07
+- ascension puis retour vendredi 18/07 à l'hôtel
 - samedi-dimanche : blanc limé avec la caravane (+ activités ludiques : pétanque, bicyclette, *etc.*)
 
 ## Participants

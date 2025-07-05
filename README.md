@@ -32,4 +32,4 @@
 
 ## Infos vélo
 
-- RAS : c pour les taffioles 💩
+- RAS : c pour les grosses taffioles 💩
